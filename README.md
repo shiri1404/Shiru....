@@ -1,3 +1,2 @@
-# Shiru....
-Shiru is pagal
+# shirisha
 She is a good girl
